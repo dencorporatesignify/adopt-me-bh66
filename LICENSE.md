@@ -1,4 +1,4 @@
-
+adopt me vip Scripts is the best adopt me Script, featuring one-hit kill and aimbot. Safe and powerful for all your needs.
 
 
 
